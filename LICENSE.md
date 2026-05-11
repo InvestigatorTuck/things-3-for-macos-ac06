@@ -1,4 +1,4 @@
-
+Things 3 for macOS premium Tool: quick search & goal tracking offers the most advanced Things 3 for macOS tool, with quick search and goal tracking. Ideal for professionals.
 
 
 
